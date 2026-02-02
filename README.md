@@ -1,1 +1,1 @@
-# Nature-photo
+# Nature-photos
